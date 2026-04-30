@@ -5,7 +5,7 @@ INT!
 mcyt fans
 hoyoverse fans (hi3 mostly) 
 wobbledog fans
-or just my friends anyone that isn't
+or just my friends and anyone that isn't
 on the dni list in general
 
 thin Ice
