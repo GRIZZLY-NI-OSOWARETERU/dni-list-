@@ -11,8 +11,8 @@ on the dni list in general
 thin Ice
 
 heavy pt skin inspo (mixed feelings) 
-weird/inappropriate behavior (unless if ur joking, 
-still uncomf though) 
+weird/inappropriate behavior (unless if ur joking and that you're my close friends, 
+still uncomf if idk you) 
 reaalllyyy dry people (keyword: really) 
 
 strictly dni! 
